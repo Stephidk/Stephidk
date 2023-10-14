@@ -3,8 +3,4 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me please call me at 772 4052361 or email me at steph02@Gmail.com
-i just need someones help understanding some codes that showed up when my phone and computer were hacked. thanks so much!!!
-<!---
-Stephidk/Stephidk is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+i just need someones help understanding some codes that showed up when my phone and computer were hacked. thanks so much!!!this isnt fake. my boyfriend ii a spftware developer who uses this site as well. i just need to o get o the bottom of this. any help would be amazing. thank you. 
